@@ -32,4 +32,7 @@ The vision behind the On-Chain Leaderboard is to decentralize scoreboards by sto
 
 ## Contract Details
 CBJJGFPPWJUREZQMIMKJS5YJNLOMEYEHCHVBPWM36GRGIPI2LAW4YAJF
-![alt text](image.png)
+![alt text](For any inquiries, reach out at ramhitsahu291@gmail.com.
+GitHub: @kuldeepsahu9.
+Linkedin: @kuldeep sahu.
+Instagram: @sanatani_kuldeep_94.)
